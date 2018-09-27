@@ -13,8 +13,8 @@
 | [mer. 28 nov.](http://www.ampli.asso.fr/event/black-bomb-a/) | L'Ampli | 20:30 | Black Bomb A | Hardcore | 15€ |
 | [jeu. 06 déc.](http://www.atabal-biarritz.fr/index.php/fr/studio?id=147) | L'Atabal | 20:00 | Sólstafir, Kontinuum, Louise Lemón | Post, prog', death gospel | 17€ |
 | [jeu. 13 déc.](http://www.ampli.asso.fr/event/grofest-3/) | L'Ampli - Grofest | 20:30 | Titan, Eryn Non Dae., Ceild, Morgenrøde | Heavy, prog', experimental, black | 13€ (ou 35€ les 3 jours) |
-| ven. 14 déc. | L'Ampli - Grofest | 20:30 | Revocation, Archspire, Rivers of Nihil, Soreption | death, technical death, prog' | 16€ (ou 35€ les 3 jours) |
-| sam. 15 déc. | L'Ampli - Grofest | 20:30 | Humanity's Last Breath, DOJ, Carbon Killer, And The Light Shineth In Darkness, Shattered Atlas | death, atmosphérique, synthwave, black, djent | 16€ (ou 35€ les 3 jours) |
+| ven. 14 déc. | L'Ampli - Grofest | 20:30 | Revocation, Archspire, Rivers of Nihil, Soreption | Death, technical death, prog' | 16€ (ou 35€ les 3 jours) |
+| sam. 15 déc. | L'Ampli - Grofest | 20:30 | Humanity's Last Breath, DOJ, Carbon Killer, And The Light Shineth In Darkness, Shattered Atlas | Death, atmosphérique, synthwave, black, djent | 16€ (ou 35€ les 3 jours) |
 | [sam. 15 déc.](http://www.atabal-biarritz.fr/index.php/fr/studio?id=70) | L'Atabal | 21:00 | Su Ta Gar, Iron eta Maider, The Hellectric Devilz | Heavy | 12€ |
 | [lun. 21 jan.](http://www.lebikini.com/programmation/concert/139186-behemoth-at-the-gates-wolves-in-throne-room-ecclesia-diabolica-evropa-2019-ev-tour-lundi-21-janvier-le-bikini-ramonville-saint-agne.html) | Le Bikini | 18:30 | Behemoth, At The Gates, Wolves In The Throne Room | Black, melodic death | 30,70€ |
 | [jeu. 07 fév.](http://www.lebikini.com/programmation/concert/139098-amorphis-soilwork-jinjer-nailed-to-obscurity-jeudi-07-fevrier-2019-le-bikini-ramonville-saint-agne.html) | Le Bikini | 18:00 | Amorphis, Soilwork, Jinjer, Nailed To Obscurity | Melodic death, metalcore | 27,50€ |
