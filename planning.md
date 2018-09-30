@@ -13,8 +13,6 @@ L'Ampli - Billère
 
 | Date | Lieu | Heure | Groupes | Genres | Prix |
 | --- | --- | --- | --- | --- | --- |
-| [ven. 28 sep.](http://www.atabal-biarritz.fr/index.php/fr/studio?id=146) | L'Atabal | 21:00 | Amenra, Obscure Sphynx | Doom, post | 17,99€ |
-| [dim. 30 sep.](http://www.lebikini.com/programmation/concert/139172-amenra-obscure-sphinx-le-rex-dimanche-30-septembre-2018-toulouse.html) | Le Rex | 20:00 | Amenra, Obscure Sphynx | Doom, post | 21,70€ |
 | [mar. 09 oct.](http://www.lebikini.com/programmation/concert/138987-saxon-fm-raven-mardi-09-octobre-2018-le-bikini-ramonville-saint-agne.html) | Le Bikini | 19:00 | Saxon, FM, Raven | Heavy | 37,80€
 | [jeu. 11 oct.](http://www.lebikini.com/programmation/concert/138952-popa-chubby-jeudi-11-octobre-2018-le-bikini-ramonville-saint-agne.html) | Le Bikini | 20:00 | Popa Chubby | Rock | 28,80€ |
 | [sam. 20 oct.](http://www.atabal-biarritz.fr/index.php/fr/studio?id=217) | L'Atabal | 21:00 | The Inspector Cluzo | Rock | 15€ |
