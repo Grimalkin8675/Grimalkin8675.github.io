@@ -76,7 +76,7 @@
 ### sam. 15 déc. 21:00 − [Atabal](http://www.atabal-biarritz.fr/index.php/fr/studio?id=70) − 12€ :
 * [Su Ta Gar](https://www.facebook.com/SUTAGARofizial), heavy 
 * [Iron eta Maider](https://www.facebook.com/ironetamaider), heavy
-* [The Hellectric Devilz](https://www.facebook.com/TheHellectricDevilz),heavy
+* [The Hellectric Devilz](https://www.facebook.com/TheHellectricDevilz), heavy
 
 ### lun. 21 jan. 18:30 − [Bikini](http://www.lebikini.com/programmation/concert/139186-behemoth-at-the-gates-wolves-in-throne-room-ecclesia-diabolica-evropa-2019-ev-tour-lundi-21-janvier-le-bikini-ramonville-saint-agne.html) − 30,70€ :
 * [Behemoth](https://www.facebook.com/behemoth), black
