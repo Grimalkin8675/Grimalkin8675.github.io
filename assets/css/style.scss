@@ -3,7 +3,7 @@
 
 @import "{{ site.theme }}";
 
-thead {
+thead tr:empty {
     display: none;
 }
 
