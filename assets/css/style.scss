@@ -3,6 +3,10 @@
 
 @import "{{ site.theme }}";
 
-tr:nth-child(odd) {
+thead {
+    display: none;
+}
+
+tr:nth-child(even) {
     background-color: #f2f2f2;
 }
