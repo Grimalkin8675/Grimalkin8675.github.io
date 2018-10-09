@@ -3,7 +3,6 @@
 
 @import "{{ site.theme }}";
 
-
-tr>:nth-child(odd) {
-    background-color: lightgray;
+tr:nth-child(even) {
+    background-color: #f2f2f2;
 }
