@@ -10,28 +10,14 @@
 
 ## Concerts
 
-### mar. 09 oct. 19:00 − [Bikini](http://www.lebikini.com/programmation/concert/138987-saxon-fm-raven-mardi-09-octobre-2018-le-bikini-ramonville-saint-agne.html) − 37,80€ :
-* [Saxon](https://www.facebook.com/saxon), heavy
-* [FM](https://www.facebook.com/FMofficial), hard rock
-* [Raven Heavy](http://www.ravenlunatics.com), heavy
-
-
-### jeu. 11 oct. 20:00 − [Bikini]((http://www.lebikini.com/programmation/concert/138952-popa-chubby-jeudi-11-octobre-2018-le-bikini-ramonville-saint-agne.html)) − 28,80€ :
-* [Popa Chubby](https://www.popachubby.com), rock
-
-
-### sam. 20 oct. 21:00 − [Atabal](http://www.atabal-biarritz.fr/index.php/fr/studio?id=217) − 15€ :
-* [The Inspector Cluzo](http://www.theinspectorcluzo.com), rock
-
-
-### mer. 07 nov. 20:00 − [Metronum](http://www.lebikini.com/programmation/concert/139174-kadavar-monolord-le-metronum-mercredi-07-novembre-2018-toulouse.html) − − 18,70€ :
+### mer. 07 nov. 20:00 − [Metronum](http://www.lebikini.com/programmation/concert/139174-kadavar-monolord-le-metronum-mercredi-07-novembre-2018-toulouse.html) − 18,70€ :
 * [Kadavar](https://www.facebook.com/KadavarOfficial), rock occulte psyché
 * [Monolord](https://www.facebook.com/monolordsweden), doom
 
 
 ### jeu. 08 nov. 20:30 − [Atabal](http://www.atabal-biarritz.fr/index.php/fr/studio?id=140) − 17€ :
 * [Aborted](https://www.facebook.com/Abortedofficial), brutal death
-* [Cryptopsy](https://cryptopsyofficial.bandcamp.com/music), brutal death)
+* [Cryptopsy](https://cryptopsyofficial.bandcamp.com/music), brutal death
 * [Benighted](https://www.facebook.com/brutalbenighted), brutal death
 * [Cytotoxin](https://www.facebook.com/Cytotoxinmetal), brutal death
 
