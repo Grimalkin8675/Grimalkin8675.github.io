@@ -64,6 +64,11 @@
 * [Iron eta Maider](https://www.facebook.com/ironetamaider), heavy
 * [The Hellectric Devilz](https://www.facebook.com/TheHellectricDevilz), heavy
 
+### jeu. 10 jan. 18:00 − [Bikini](https://www.lebikini.com/programmation/concert/139285-powerwolf-amaranthe-kissin-dynamite-jeudi-10-janvier-2019-le-bikini-ramonville-saint-agne.html) − 28,60€ :
+* [Powerwolf](https://www.facebook.com/powerwolfmetal/), power metal
+* [Amaranthe](https://www.facebook.com/AmarantheBand/), power metal
+* [Kissin' Dynamite](https://www.facebook.com/Kissindynamiterocks/), hard rock
+
 ### lun. 21 jan. 18:30 − [Bikini](http://www.lebikini.com/programmation/concert/139186-behemoth-at-the-gates-wolves-in-throne-room-ecclesia-diabolica-evropa-2019-ev-tour-lundi-21-janvier-le-bikini-ramonville-saint-agne.html) − 30,70€ :
 * [Behemoth](https://www.facebook.com/behemoth), black
 * [At The Gates](https://www.facebook.com/AtTheGatesOfficial), melodic death
