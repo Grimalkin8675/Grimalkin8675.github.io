@@ -73,6 +73,6 @@ Ici on parle que le rançais pur et dur parce que l'anglais c'est caca boudin. L
 - 😂 : goguenardise lacrymale
 
 Références :
-- https://www.reddit.com/r/rance/
-- https://www.reddit.com/r/rance/wiki/dicotout
-- https://www.twog.fr/les-mots-du-langage-web-jeune-sils-etaient-traduits-par-lacademie-francaise/
+- [https://www.reddit.com/r/rance/](https://www.reddit.com/r/rance/)
+- [https://www.reddit.com/r/rance/wiki/dicotout](https://www.reddit.com/r/rance/wiki/dicotout)
+- [https://www.twog.fr/les-mots-du-langage-web-jeune-sils-etaient-traduits-par-lacademie-francaise/](https://www.twog.fr/les-mots-du-langage-web-jeune-sils-etaient-traduits-par-lacademie-francaise/)
