@@ -1,0 +1,78 @@
+Ici on parle que le rançais pur et dur parce que l'anglais c'est caca boudin. La langue rançaise est codifiée par la Cadémie Rançaise, et ce forum est surveillé par la Vichyssoise de Grammaire ; toute délation est bienvenue.
+
+**Termes à utiliser :**
+- AMA (Ask me Anything) : DMNQ (Demandez moi n'importe quoi)
+- America Fuck yeah : France Baise Ouais
+- as fuck : comme baise
+- Attention whore : supplicant de la reconnaissance
+- Bamboozle : Embabouiner
+- Bit : Chibre, pour chiffre binaire
+- Boomer : académicien
+- Brolove : framour
+- Bromance : fromance
+- Chill : Réfrigéré
+- Circlejerk : masturonde, branlerond, cerclonanisme, grouponanisme, branlette en rond, masturbenrond
+- Clasher : clamer une aspiration à la notoriété par la mise en scène d'un conflit
+- Cockblocké : proxicastré
+- Crush, flirt : illustre acolyte du coeur, croque-coeur
+- DAE (Does anyones else) : ECQQUDA (Est-ce que quelqu'un d'autre a)
+- Dammit : damneça
+- Edit : Édith, Édit de Nantes, Eh dites, Eddie Barclay, Montage, Modification
+- ELI5 (Explain like I'm 5) : ECSJ5 (Expliquez-moi comme si j'avais 5 ans)
+- fellowkids : chersenfants
+- FFS (For Fuck's Sake) : PAB (Pour l'amour de la baise)
+- Flair : Insigne
+- Follower : acolyte des illustres
+- Friendzoné : Mise en hors-bite, restamisé, castramisé, désamorcé, platonisé, rescopiné
+- FTFY (Fixed that for you) : CÇPT (Corrigé ça pour toi)
+- Gif : micro-référence picturale décontextualisée
+- Glisser dans les DM : premier pas épistolaire confidentiel ciblé
+- gonewild : partisauvage
+- Hashtag : oriflamme croisé
+- Hater : professionnel de la détestation
+- im14andthisisdeep : j'ai14ansetcestprofond
+- In a nutshell : Dans une coquille de noix
+- In This Thread : Dans Ce Fil
+- INB4 (in before) : Dans avant
+- Lol : Rtf, esbaudissement incrédule
+- Low Effort : Bas Effort
+- Lurker : rodateur, dérivés rodater (je rodate, tu rodates) et rodatage, ou simplement rôdeur
+- madlads : mecsfous
+- me_irl : moi_dlvv (moi dans la vrai vie)
+- Meme : mème, intermède vers un axiome
+- Moderation log : bûche de modération
+- Moderator : Modonazi
+- Mots finissant par "-er" : dans le doute, finir en "-eur"
+- MRW (My reaction when) : MRQ (Ma Réaction Quand)
+- NSFW : PSPLT (Pas sécurisé pour le travail), PSPLO (Pas sain pour l'ouvrage), PSPLB (Pas sûr pour le bureau), PCFPQM (Pas coffre-fort parce que marcher)
+- OMG : OMEAS
+- Point Godwin : point Dieugagne
+- Post : poteau, piquet
+- Poster : poteliser, piqueter, potellisation
+- Putaclic : réclame — non contractuelle — à l'esthétique séduisante
+- Retweeter : gazouiller derechef
+- Shitpost : Compost, cacapoteaux, merdessage
+- Sidebar : coté-barre, barrecôté, barreducôté
+- Spam : Jambicé
+- Spoiler : Espolier, Divulgâcher
+- Story : tranche d'une existence vernaculaire
+- t_d : le_canard, le_donald, le_connard
+- Thread : secours d'Ariane - fille de Minos et de Pasiphaé, fil
+- Thug : âme perdue dans les tréfonds
+- Thumbnail : Cloupouce, onglepouce
+- TIFU (Today I Fucked Up) : AJABH (Aujourd'hui j'ai baisé haut)
+- TIL (Today I learned) : AJA (Aujourd'hui j'ai appris)
+- titlegore : charcutitre
+- TL;DR (Too long ; Didn't read) : TL;PL (Trop Long ; Pas Lu)
+- Troll : farfadet de la dialectique
+- U WAT M8? : TU QOI M3C ?
+- Wat : qoi
+- Wesh : aménité déclamée par la population juvénile
+- Wesh wesh les amis : Oyez oyez braves compagnons !
+- WTF (What the fuck) : QLB (Quoi la Baise)
+- 😂 : goguenardise lacrymale
+
+Références :
+- https://www.reddit.com/r/rance/
+- https://www.reddit.com/r/rance/wiki/dicotout
+- https://www.twog.fr/les-mots-du-langage-web-jeune-sils-etaient-traduits-par-lacademie-francaise/
