@@ -69,7 +69,7 @@ Ici on parle que le rançais pur et dur parce que l'anglais c'est caca boudin. L
 - Wat : qoi
 - Wesh : aménité déclamée par la population juvénile
 - Wesh wesh les amis : Oyez oyez braves compagnons !
-- WTF (What the fuck) : QLB (Quoi la Baise)
+- WTF (What the fuck) : QLB (Quoi la Baise), QPJA (Quelle Partie de Jambe en l'Air)
 - 😂 : goguenardise lacrymale
 
 Références :
