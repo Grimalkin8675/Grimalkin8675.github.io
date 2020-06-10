@@ -34,7 +34,7 @@ Ici on parle que le rançais pur et dur parce que l'anglais c'est caca boudin. L
 - In a nutshell : Dans une coquille de noix
 - In This Thread : Dans Ce Fil
 - INB4 (in before) : Dans avant
-- Lol : Rtf, esbaudissement incrédule
+- LOL : RTF (Rire Très Fort), esbaudissement incrédule
 - Low Effort : Bas Effort
 - Lurker : rodateur, dérivés rodater (je rodate, tu rodates) et rodatage, ou simplement rôdeur
 - madlads : mecsfous
@@ -51,6 +51,7 @@ Ici on parle que le rançais pur et dur parce que l'anglais c'est caca boudin. L
 - Poster : poteliser, piqueter, potellisation
 - Putaclic : réclame — non contractuelle — à l'esthétique séduisante
 - Retweeter : gazouiller derechef
+- ROFL : RPTR (Rouler Par Terre en Riant)
 - Shitpost : Compost, cacapoteaux, merdessage
 - Sidebar : coté-barre, barrecôté, barreducôté
 - Spam : Jambicé
